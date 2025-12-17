@@ -20,7 +20,7 @@ for long-term preservation and public access.
   https://archive.org/details/chatgpt-concept-map-for-amygdala-2025-12-04-1764845797267
 
 - Brainwashing Models, Influence Operations & Coercive Persuasion  
-  https://archive.org/details/ITEM_IDENTIFIER_2
+https://archive.org/details/self-premature-defense-mechanisms
 
 - Psychological Warfare Tactics in Digital & Media Environments  
   https://archive.org/details/shame_202512
