@@ -23,7 +23,7 @@ for long-term preservation and public access.
   https://archive.org/details/ITEM_IDENTIFIER_2
 
 - Psychological Warfare Tactics in Digital & Media Environments  
-  https://archive.org/details/ITEM_IDENTIFIER_3
+  https://archive.org/details/shame_202512
 
 - Mind Control Frameworks, Behavioral Manipulation & Narrative Engineering  
   https://archive.org/details/chatgpt-hamzakhan
