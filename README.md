@@ -17,7 +17,7 @@ for long-term preservation and public access.
 ### Core Research Archives
 
 - Psychological Indoctrination & Conditioning Notes (ZIP)  
-  https://archive.org/details/ITEM_IDENTIFIER_1
+  https://archive.org/details/chatgpt-concept-map-for-amygdala-2025-12-04-1764845797267
 
 - Brainwashing Models, Influence Operations & Coercive Persuasion  
   https://archive.org/details/ITEM_IDENTIFIER_2
