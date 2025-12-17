@@ -28,6 +28,9 @@ https://archive.org/details/self-premature-defense-mechanisms
 - Mind Control Frameworks, Behavioral Manipulation & Narrative Engineering  
   https://archive.org/details/chatgpt-hamzakhan
 
+
+  https://archive.org/details/copilot-activity-history
+
 ## 🔍 Topics Covered
 
 - Psychological indoctrination
